@@ -1,3 +1,3 @@
 Hi there! Today I will be showing you how to make Vegetarian Grilled Cheese Sandwiches with Tomato Soup, a favorite recipe of mine.
-I have included a picture of the expected outcome, but don't fret if your's dowsn't turn out like that one. It's alright, because there's no wrong way to make this unless you put the tomatoes in the bread and the cheese in the soup, or something like that.
+I have included a picture of the expected outcome, but don't fret if your's doesn't turn out like that one. It's alright, because there's no wrong way to make this unless you put the tomatoes in the bread and the cheese in the soup, or something like that.
 Well, let's get started! Let's go to the ingredients list!
